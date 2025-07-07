@@ -1,1 +1,1 @@
-# univibe
+# univibe campus vibes
